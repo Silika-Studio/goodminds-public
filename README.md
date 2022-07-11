@@ -1,0 +1,1 @@
+# goodminds-public
